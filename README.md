@@ -1,0 +1,1 @@
+Tetar reade funktionen
